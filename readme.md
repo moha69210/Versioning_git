@@ -1,4 +1,3 @@
-mnbdpro@gmail.com
 
 Bonjour je m'appelle Mohamed Chettah, j'ai 20 ans et l'an passée j'étais en bts sio option slam à Lyon à la martinière duchère.
 
